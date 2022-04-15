@@ -7,7 +7,7 @@
      /       |      &#9;
     /  ヽ    ﾉ      &#9;Discord: Ytterst#3984
   _|   | |  |       &#9;Email: mio@meow.business
- /_|   | |  |       &#9;Thanks to wictornogueira for this epic cat
+ /_|   | |  |       &#9;Thanks to: wictornogueira for this epic cat
 |(_ \__\_)__)
  \_)
 
